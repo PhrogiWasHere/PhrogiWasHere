@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @PhrogiWasHere
+- 👀 I’m interested in Minecraft
+- 🌱 I’m currently learning Java
+- 📫 How to reach me: Phrogi#6353
